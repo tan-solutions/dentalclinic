@@ -33,4 +33,3 @@ If you’re facing constant tooth pain or gum swelling, don’t delay — visit 
 
 
 
-Would you like me to make it sound a bit more **conversational** (like a blog post written by a friendly dentist for readers)?
